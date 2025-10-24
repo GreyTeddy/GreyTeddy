@@ -1,6 +1,6 @@
 _Support wikipedia by making an account and making edits!_
 _Support your local community and volunteer!_
-_Support your friends and family!_
+_Be there for your friends and family!_
 
 
 <!---
